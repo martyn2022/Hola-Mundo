@@ -11,6 +11,7 @@ sometimes I go running
 
 or ride a bike
 
+trekking
 
 
 
